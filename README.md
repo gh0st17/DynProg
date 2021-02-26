@@ -1,4 +1,4 @@
 # EGE23
 
 
-![DynProg](https://b.radikal.ru/b13/2102/97/e18fedf64252.png)
+![DynProg](https://a.radikal.ru/a13/2102/9b/2a372014838d.png)
